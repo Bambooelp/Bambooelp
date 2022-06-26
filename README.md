@@ -1,0 +1,1 @@
+Hi, I'm new here, I'm a student from Vietnam and I dont really have a wide knowledge about coding and stuffs like that, so i really hope that my questions about coding will be answered by the pros. Thank you for reading this.
